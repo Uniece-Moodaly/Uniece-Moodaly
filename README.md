@@ -1,4 +1,4 @@
-Uniece Moodaly
+Hi, I’m Uniece Moodaly
 
 Treasury | Finance | AI & Technology
 
